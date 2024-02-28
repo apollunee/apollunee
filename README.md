@@ -14,6 +14,8 @@ so, keep on making masterpieces !
 I'm  currently working on my carrd which there would be more info in there, (also considering about making a rentry)
 still trying to figure things out on my end, might be awhile before that's out :'D
 
+it's all new to me..
+
 anyways, thanks for stopping by and reading this !!
 
 ![20240221_210030](https://github.com/apollune/apollune/assets/142468472/c344b718-e7db-41b5-b2d7-30e4a1c44386)
