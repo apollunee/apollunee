@@ -5,7 +5,7 @@
 
 ➜  silliest squid / moth on the block .ᐟ
 
-### **✦     .      my pt / dc status**
+**✦     .      my pt / dc status**
 
 🟢  --  either that i'm really active or that i got possessed
 
