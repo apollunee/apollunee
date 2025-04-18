@@ -1,8 +1,9 @@
 ## *...  being a dumb tourist*
 
-![Untitled824_20250325223228](https://github.com/user-attachments/assets/1b478fd7-3b67-4d83-8202-d006754ef162)
+![GIF_20250419_004523_170](https://github.com/user-attachments/assets/74c35b27-8840-4b26-805c-11e21e3f691a)
 
-➜  banner made by seomi !  ^ ^
+
+➜  silliest squid / moth on the block .ᐟ
 
 ### **✦     .      my pt / dc status**
 
