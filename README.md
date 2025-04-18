@@ -1,10 +1,10 @@
-## ***...  All aboard the Sugarcloud Express .ᐟ***
+## *...  being a dumb tourist*
 
 ![Untitled824_20250325223228](https://github.com/user-attachments/assets/1b478fd7-3b67-4d83-8202-d006754ef162)
 
 ➜  banner made by seomi !  ^ ^
 
-### **✦     .      My pt / dc status**
+### **✦     .      my pt / dc status**
 
 🟢  --  either that i'm really active or that i got possessed
 
