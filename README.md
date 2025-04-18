@@ -8,11 +8,11 @@ silliest squid / moth on the block .ᐟ
 
 **✦     .      my pt / dc status**
 
-🟢  --  either that i'm really active or that i got possessed
+🟢  --  either that im really active or that i got possessed
 
 🌙  --  what i mainly use, feel free to int!
 
-⛔️  --  i'm afk, best that you whisper if you want to get a response
+⛔️  --  im afk, best that you whisper if you want to get a response
 
 ⚫️  --  sleeping, at school or overall, just not on the platform
 
