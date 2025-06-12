@@ -20,8 +20,8 @@ silliest squid / moth on the block .ᐟ
 
 i go mostly by __lune__ or any other name you know me by! 
 
-the other info about me will be in my **carrd** or maybe **rentry**, feel free to go check that when it's out
+the other info about me is in my **carrd**, feel free to go check it ^ ^
 
-also, sign my atabook! if you want to, ofc
+also, sign my atabook if you want to!
 
 ➜  note : i'm usually shy and afraid to int first, unless it's really on my part.. i don't bite!! :3
