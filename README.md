@@ -1,6 +1,6 @@
-## *...  being a dumb tourist*
+## *...  being a dumb tourist on this platform*
 
-silliest squid / moth on the block .ᐟ
+silliest squid on the block .ᐟ
 
 
 ![GIF_20250419_004523_170](https://github.com/user-attachments/assets/74c35b27-8840-4b26-805c-11e21e3f691a)
